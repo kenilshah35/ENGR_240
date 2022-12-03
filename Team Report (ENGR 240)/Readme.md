@@ -1,0 +1,1 @@
+Collaborated with Waste reduction supervisor to develop solutions for a real life sustainability problem while identifying avenues for improvement
